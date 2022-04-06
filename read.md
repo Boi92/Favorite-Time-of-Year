@@ -1,1 +1,1 @@
-I like summer more than winter
+my favorite time is summer, i like it more than winter
